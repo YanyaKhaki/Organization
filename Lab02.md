@@ -1,4 +1,4 @@
-* Variant 3 Tseitlin
+* Variant 3 Tseitlin Viktoria
 
 * Variant 4 Hotynyuk Kostyukov Smolskaya
 
