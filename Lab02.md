@@ -10,7 +10,7 @@
 
 * Variant 8 Kolbasuk
 
-* Variant 9 Puzanova
+* Variant 9 Puzanova Kozlova
 
 * Variant 10
 
@@ -20,4 +20,4 @@
 
 * Variant 13
 
-* Variant 14
+* Variant 14 Cheremisina
